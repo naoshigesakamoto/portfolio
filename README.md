@@ -1,2 +1,6 @@
 # portfolio
 DQMJ3P(ドラゴンクエストモンスターズジョーカー3プロフェッショナル)の私の考えたオリジナルの序盤のレベル上げの方法を他の方法と比較しながら紹介する
+
+
+https://github.com/user-attachments/assets/0a4604a0-eade-455e-8397-6afe0dd6c40d
+
